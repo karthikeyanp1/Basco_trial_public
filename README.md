@@ -1,2 +1,0 @@
-# Basco_trial_public
-Basco_trial_public
